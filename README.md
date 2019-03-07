@@ -1,1 +1,1 @@
-# White-Wolf---Needs-Yourself
+ am a new user and need help setting up my entire node properly, to handle valuable and privacy sensitive tasks. I ask the community to help ensure that it receives ethical, reputable and qualified help to get it.
